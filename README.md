@@ -1,4 +1,4 @@
-## Hey there! I'm Abhiheet⚡.
+## Hey there! I'm Abhijeet⚡.
 
 <p align="center"> 
   Visitor count<br>
